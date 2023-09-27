@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+Cancer survivor. Interested in all things tech && science. Interests are Photography, music, art, movies.
+
 <!--
 **DudeWithOneLeg/DudeWithOneLeg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
